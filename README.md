@@ -7,6 +7,6 @@
 
   
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤread my [strawpage](https://phvidei.straw.page/) & sign it if you'd like
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤread my [strawpage](https://melvncholy.straw.page/) & sign it if you'd like
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤc+h completely okay don't be shy _!!!!!_
